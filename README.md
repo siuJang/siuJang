@@ -2,7 +2,7 @@
 - 👀 I’m interested in Artificial Intelligence
 - 🌱 I’m currently learning AI, Web Programming
 - 💞️ I’m looking to collaborate on DongA univ
-- 📫 How to reach me jsw74092@gmail.com
+- 📫 How to reach me
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I'm LOSER!
 
